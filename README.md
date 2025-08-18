@@ -52,4 +52,4 @@ And when you watch them fall backwards,
 remember: every reverse is just life rehearsing for its final shutdown.
 ------
 
-💀🔥 Code hard. Die harder. 🔥💀
+--------------------------------💀🔥 Code hard. Die harder. 🔥💀-------------------------------------------
